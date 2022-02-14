@@ -1,1 +1,1 @@
-This is my page. My name is Camilo
+This is my page. And my name is Camilo Garcia 
